@@ -1,2 +1,2 @@
-# Resume
-A brief information about me and eager to know for any feedback.
+# Contact me
+kindly convey your message to contact me for any feedback.
